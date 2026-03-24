@@ -1,1 +1,1 @@
-<img border="0" src="https://c.tenor.com/ctJhGBnmbqgAAAAC/au-dd-pnl.gif">
+<img border="0" src="[https://c.tenor.com/ctJhGBnmbqgAAAAC/au-dd-pnl.gif](https://media.discordapp.net/attachments/1470794918690684959/1485042114957148371/brume_ban.webp?ex=69c3b87e&is=69c266fe&hm=9ba1e8c87cfadd099a8bf57e882f7728c520cea3c0b174422333a86b1308349b&=&format=webp)">
